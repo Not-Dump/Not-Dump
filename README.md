@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Not-Dump
 - 👀 I’m interested in Future, Self thaught programming and Entrepreneurship!
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to Someone's to My team Members (For My Company)
+- 💞️ I’m looking to Someone's to build my Team (For My Company)
 - 📫 How to reach me - notdump@hotmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Always Future Start from Some Minds!!
