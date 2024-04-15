@@ -2,7 +2,8 @@
 - 👀 I’m interested in Future, Self thaught programming and Entrepreneurship!
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to Someone's to build my Team (For My Company)
-- 📫 How to reach me - notdump@hotmail.com
+- 📫 How to reach me - dummywooden488@gmail.com
+
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Always Future Start from Some Minds!!
 
